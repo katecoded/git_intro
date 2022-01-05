@@ -1,2 +1,1 @@
-Katelyn Lindsey 
-7
+Katelyn Lindsey
